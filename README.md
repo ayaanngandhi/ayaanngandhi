@@ -44,7 +44,7 @@ Self-taught programmer. I build things that solve real problems — e-commerce p
 
 - 🌐 [ayaanngandhi.in](https://ayaanngandhi.in)
 - 🐦 [@ayaanngandhi](https://x.com/ayaanngandhi)
-- 📧 ayaangandhi2011@gmail.com
+- 📧 mail@ayaanngandhi.in
 
 ---
 
